@@ -1,1 +1,0 @@
-# NotOK_assignment_3
